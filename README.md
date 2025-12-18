@@ -81,5 +81,6 @@ Lyra stood at the edge of the walkway, her hair whipped by the high-altitude win
 The corporate sirens began to wail, a dissonant, screaming chord in the city's calculated symphony. Security drones swarmed like angry hornets in the distance.
 
 Alex looked at his wrist, where his identity link pulsed—the mark of a perfect citizen. With a roar of defiance, he slammed his arm against the bridge's heavy stone pier, shattering the glass and metal of his tether.
-![Page 11](page10.png)
+
+![Page 11](page11.png)
 Lyra watched the shards of the corporate link fall into the abyss, her suspicion finally cracking into a rare smile. The Echoes surged, a tidal wave of truth flowing through Alex's mind. He stepped toward the main control terminal. He wasn't just a cog anymore; he was the Master Architect. As he began to rewrite the city's code, the neon blue began to fade, replaced by the warm, living colors of a world that breathed.
