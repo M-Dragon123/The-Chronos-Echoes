@@ -1,5 +1,4 @@
 # The Chronos Echoes
-**By Long**
 
 ![Page 1](page1.png)
 
